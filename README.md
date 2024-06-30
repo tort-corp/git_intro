@@ -1,1 +1,2 @@
-Clint Merritt
+Clinton Merritt
+merritcl@oregonstate.edu
