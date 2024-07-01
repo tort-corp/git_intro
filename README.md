@@ -1,1 +1,4 @@
-Clint Merritt
+Clinton Merritt
+merritcl@oregonstate.edu
+Green
+CastleSiege
